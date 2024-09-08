@@ -4,8 +4,8 @@
 स्वस्ति नस्तार्क्ष्यो अरिष्टनेमिः  
 स्वस्ति नो बृहस्पतिर्दधातु ॥  
 
-स्वस्ति (indeclinable) means well-being / successfully / hail
-न (नः which changes to न due to विसर्ग सन्धि rule) is अस्मद् (I / We) द्वतिया / चतुर्थि / षषठि
-इन्द्रो is इन्द्र
-वृद्ध is senior
+स्वस्ति (indeclinable) means well-being / successfully / hail   
+न (नः which changes to न due to विसर्ग सन्धि rule) is अस्मद् (I / We) द्वतिया / चतुर्थि / षषठि   
+इन्द्रो is इन्द्र   
+वृद्ध is senior   
 श्रवाः is 
